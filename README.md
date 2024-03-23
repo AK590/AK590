@@ -10,7 +10,7 @@
 
 💞️ I’m looking to collaborate on exciting projects that involve web development, data science, or anything related to artificial intelligence.
 
-📫 How to reach me: You can reach me via email at ak590@example.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/ak590/).
+📫 How to reach me: You can reach me via email at aryanukreti80@gamil.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/ak590/).
 
 😄 Pronouns: He/Him
 
